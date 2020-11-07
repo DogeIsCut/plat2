@@ -1,2 +1,0 @@
-# plat
- hfghgfh
